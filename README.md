@@ -10,4 +10,6 @@ All photographs are the exclusive property of castingspells.xyz and are protecte
 
 © 2025 castingspells.xyz All rights reserved.
 
+## I DO NOT OWN ANY IMAGES IN THE MISC FOLDER
 anything in the misc folder is fair game.
+They belong to their respective copyright owners.
